@@ -1,1 +1,0 @@
-# Lab_DataBases_Zavadskyi
